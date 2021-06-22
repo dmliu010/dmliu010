@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @dmliu010
-- 👀 I’m interested in ... cycling, programming, working out
+- 👀 I’m interested in ... cycling, programming, teaching bicycle repair, lifting weight, bodyweight training, etc. 😉
 - 🌱 I’m currently learning ... lots of things ;)
-- 💞️ I’m looking to collaborate on ... 
+- 💞️ I’m looking to collaborate on ... anything and everything 😈
 - 📫 How to reach me ... luckydliu010@gmail.com
 
 <!---
